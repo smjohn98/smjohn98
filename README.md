@@ -1,4 +1,4 @@
-# 
+# Samarth Mishra
 👋 Hi, I’m Samarth. Username- smjohn98
 
 👀 I’m interested in telling actionable meaningful stories with data
